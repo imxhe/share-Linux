@@ -3,7 +3,7 @@
 
 　　为保护用户隐私以及数据安全，请填写tx文档申请独立开户，管理人员看到了将会统一审核。
 
-Linux共享鸡开户表：
+共享鸡开户表：
 https://docs.qq.com/form/page/DSE1RTENLRXB6UFFP
 
 开户结果：
