@@ -4,5 +4,7 @@
 　　为保护用户隐私以及数据安全，需填写tx文档申请独立开户，管理人员看到了将会统一审核，感兴趣的同学欢迎进群交流学习 😁😁
 
 QQ群：[546606771](http://qm.qq.com/cgi-bin/qm/qr?_wv=1027&k=YYfJvd_5gC2b4pdfm08xkdVbQjGOfmfn&authKey=KOKZHsvtjmK%2Fe0Wj7vGvmh2nJbbfOdx2IEzj3SBjvQ5%2BZC3mcZEH4P%2BXE7l8l%2BGn&noverify=0&group_code=546606771)
+
 开户表：https://docs.qq.com/form/page/DSE1RTENLRXB6UFFP
+
 开户结果：https://docs.qq.com/sheet/DSFBYWm5ReUpUQlh5?tab=jwl7i3
